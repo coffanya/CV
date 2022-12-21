@@ -61,7 +61,7 @@
 
 - **Менеджер по персоналу**
 
-    [***Кофейня "Кофе - это фрукт" ***](https://www.instagram.com/coffeefruit.nn/)
+    [***Кофейня "Кофе - это фрукт"***](https://www.instagram.com/coffeefruit.nn/)
     
     *Май 2019 - Июль 2020*
 
